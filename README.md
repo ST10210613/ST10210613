@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ST10210613
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning it in sofware development
+- 🌱 I’m currently learning IT in sofware development
 - 💞️ I’m looking to collaborate on school work
 - 📫 reacjh me @ ST10210613@rcconnet@edu.za
 
